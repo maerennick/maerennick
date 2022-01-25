@@ -5,6 +5,7 @@
 
 
 📒 Academic Profile : https://froehlichlab.eemb.ucsb.edu/people/mae-rennick
+
 🐦 Twitter: @maerennick
 
 #### What am I up to?
