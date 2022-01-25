@@ -3,6 +3,7 @@
 #### PhD Student in the Department of Ecology, Evolution & Marine Biology at the University of Santa Barbara California
 #### Member of the Froehlich Lab
 
+🖱 Personal Website: https://maerennick.github.io/maerennick_website/
 
 📒 Academic Profile : https://froehlichlab.eemb.ucsb.edu/people/mae-rennick
 
